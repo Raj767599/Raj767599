@@ -142,9 +142,9 @@ View my verified Credly certification
 
 GitHub: @Raj767599
 
-Gonu AI: gonu-ai.com
+Gonu AI: https://gonu-ai.com/
 
-Credly: View Certification
+Credly: https://www.credly.com/badges/e2aef237-d26d-4b42-af10-fc9bb2dfaaae/public_url
 
 ⸻
 
